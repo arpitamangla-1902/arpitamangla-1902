@@ -37,7 +37,7 @@
 
 ## Connect With Me
 
-- LinkedIn: Add your LinkedIn URL after creating your profile.
+- LinkedIn: www.linkedin.com/in/arpita-mangla-88b407415
 - Email: arpitamangla9@gmail.com
 
 ---
